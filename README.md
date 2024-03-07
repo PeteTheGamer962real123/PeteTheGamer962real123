@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PeteTheGamer962real123
+- 👀 I’m interested in GaqmeDev
+- 🌱 I’m currently learning Game Dev
+- 💞️ I’m looking to collaborate on Nothing
+- 📫 How to reach me use the email peteraymondiv@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm sleep-deprived
